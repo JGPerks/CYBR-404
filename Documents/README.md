@@ -1,1 +1,1 @@
-
+Our speaker provided many useful tips, insights, and guidelines to follow for the upcoming career fair. The biggest takeaway for me was about developing an elevator speech. It’s never occurred to me that this was something to practice. I know I need to come off confident and well-versed. However, I’ve typically relied on myself and have been going with the flow. This is certainly something I need to work on. Besides being a useful quip, it’ll help me demonstrate my knowledge of their company as well as my skills in a concise manner.
